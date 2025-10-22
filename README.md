@@ -1,2 +1,2 @@
 # FranEsGey
-Fran no es Gey, es muy Gey
+Javi no es Gey, es muy Gey
