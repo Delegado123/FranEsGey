@@ -1,3 +1,2 @@
 # FranEsGey
-Fran es Gey
-Fran es Gey2
+Fran no es Gey
