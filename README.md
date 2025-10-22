@@ -1,4 +1,2 @@
-# FranEsGey
-<<<<<<< HEAD
-Fran no es Gey, es muy Gey o muy muy Gey
-
+# A Javi le gustan los nísperos
+Javi no es Gey, es muy Gey
